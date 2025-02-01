@@ -2,7 +2,7 @@
 - 👀 I’m interested in eating
 - 🌱 I’m currently learning stuff
 - 💞️ I’m looking to collaborate on school
-- 📫 How to reach me englash
+- 📫 How to reach me english
 - 😄 Pronouns: man
 - ⚡ Fun fact: hungry
 
